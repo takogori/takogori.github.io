@@ -1,0 +1,1 @@
+# takogori.github.io
